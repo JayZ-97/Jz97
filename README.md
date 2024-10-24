@@ -16,4 +16,4 @@ My interesting life
 
 ## 📫 联系我
 - [LinkedIn](hwww.linkedin.com/in/jianyi-zhou-42ba3a318)
-
+- [Email](jzho0845@uni.sydney.edu.au)
